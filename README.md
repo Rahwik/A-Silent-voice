@@ -18,4 +18,4 @@ Key Characters
 Conclusion
 ----------
 
-"A Silent Voice" is a powerful and emotionally resonant film that explores the impact of bullying, the journey of redemption, and the importance of understanding and empathy. It has received critical acclaim for its storytelling, animation, and themes.
+"A Silent Voice" is a powerful and emotionally resonant film that explores the impact of bullying, the journey of redemption, and the importance of understanding and empathy. It has received critical acclaim for its storytelling, animation, and themes.,
